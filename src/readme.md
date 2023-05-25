@@ -1,0 +1,1 @@
+Este es un documento de información para ver si se subió correctamente en la plataforma de github
