@@ -7,4 +7,9 @@ prueba de ramas para pasar este video de mierda
 
 prueba de esta mierda porque no me gusta hacer estop
 
-Pruebas realizadas después del tutorial de guarandoslivia
+Pruebas realizadas después del tutorial de guarandoslivia culo
+
+Lorem ipsum dolor sit amet consectetur adipisicing elit. Rerum quisquam ullam nisi dolores dolorum atque magnam minus sit 
+dicta repudiandae quas, repellat ducimus, sed alias aliquid! Libero quod explicabo fuga? culo
+
+culodor
